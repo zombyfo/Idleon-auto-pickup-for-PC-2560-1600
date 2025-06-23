@@ -1,0 +1,1 @@
+# Idleon-auto-pickup-for-PC-2560-1600
